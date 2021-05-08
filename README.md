@@ -38,7 +38,7 @@ https://josephaguthrie.github.io/rrgjag/
 
 ![Rufio and Tootles by the fire](Rufio_and_Tootles_Campfire.jpg)
 
-*Another photo fo Rufio and Tootles by the Campfire.*
+*Another photo of Rufio and Tootles by the Campfire.*
 
 ## Image of my basemap
 
