@@ -16,11 +16,11 @@ https://josephaguthrie.github.io/rrgjag/
 
 
 
-##  My wife Kharri and out two dogs Rufio and Tootles camping on a spur off of Auxier Ridge in October, 2018
+##  My wife Kharri and our two dogs, Rufio and Tootles, camping on a spur off of Auxier Ridge in October, 2018
 
 ![*Kharri and the Dog's by the fire*](kharri_and_dogs.jpg)
 
-*This was the dogs first backpacking trip*, we have taken them backpacking several more times since then and they love it, as long as they are wearing their sweaters
+*This was the dogs first backpacking trip*, we have taken them backpacking several more times since then and they love it, as long as they are wearing their sweaters.
 
 ## Kharri and Tootles hiking out from the same trip
 
