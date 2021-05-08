@@ -34,6 +34,12 @@ https://josephaguthrie.github.io/rrgjag/
 
 *Rufio and Tootles in their sweaters.*
 
+## Another photo of the dogs
+
+![Rufio and Tootles by the fire](Rufio_and_Tootles_Campfire.jpg)
+
+*Another photo fo Rufio and Tootles by the Campfire.*
+
 ## Image of my basemap
 
 ![Basemap Image](Basemap_Image.jpg)
