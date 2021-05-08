@@ -28,6 +28,12 @@ https://josephaguthrie.github.io/rrgjag/
 
 *Kharri and Tootles hiking out from the same trip.*
 
+## Rufio and Tootles in their sweaters
+
+![Rufio and Tootles Sweaters](Rufio_and_Tootles_Sweaters.jpg)
+
+*Rufio and Tootles in their sweaters.*
+
 ## Image of my basemap
 
 ![Basemap Image](Basemap_Image.jpg)
