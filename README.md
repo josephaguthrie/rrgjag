@@ -22,11 +22,11 @@ https://josephaguthrie.github.io/rrgjag/
 
 *This was the dogs first backpacking trip.* We have taken them backpacking several times since then and they love it as long as they are wearing their sweaters.
 
-## Kharri and Tootles hiking out from the same trip
+## Kharri and Tootles
 
 ![Kharri and Tootles Hiking out](Kharri_and_Tootles.jpg)
 
-*Kharri and Tootles hiking out from the same trip.*
+*Kharri and Tootles admiring the view on Auxier Ridge on the hike out.*
 
 ## Rufio and Tootles in their sweaters
 
