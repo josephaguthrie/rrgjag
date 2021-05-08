@@ -20,7 +20,7 @@ https://josephaguthrie.github.io/rrgjag/
 
 ![*Kharri and the Dog's by the fire*](kharri_and_dogs.jpg)
 
-*This was the dogs first backpacking trip*, we have taken them backpacking several more times since then and they love it, as long as they are wearing their sweaters.
+*This was the dogs first backpacking trip.* We have taken them backpacking several times since then and they love it as long as they are wearing their sweaters.
 
 ## Kharri and Tootles hiking out from the same trip
 
