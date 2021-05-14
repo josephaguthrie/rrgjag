@@ -5,7 +5,7 @@
 [Link to GeoPDF](basemap/rrgjag.pdf)
 
 
-https://josephaguthrie.github.io/rrgjag/
+[https://josephaguthrie.github.io/rrgjag/](https://josephaguthrie.github.io/rrgjag/)
 
 
 ## Image of Neat things in the Red River Gorge
