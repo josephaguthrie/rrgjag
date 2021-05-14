@@ -42,8 +42,20 @@ https://josephaguthrie.github.io/rrgjag/
 
 ## Image of my basemap
 
-![Basemap Image](Basemap_Image.jpg)
+![Basemap](Basemap_Image.jpg)
 
 *jpeg of Basemap*
+
+
+## Courthouse Rock in the Red River Gorge
+
+![Courthouse Rock in the Red River Gorge](CourthouseRockLayout.jpg)
+
+
+## Animation of Courthouse Rock in the Red River Gorge
+
+![Courthouse Rock Youtube animation Screen Shot](Screenshot_Youtube_Animation_Courthouse_Rock.jpg)
+
+[Youtube link of Courthouse Rock Animation](https://youtu.be/G72U5XA_0WY)
 
 
