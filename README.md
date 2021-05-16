@@ -60,7 +60,7 @@
 
 ## Mapbox Link
 
-[Link to Mapbox](mapbox://styles/youcantcatch88/ckor8zeas0tzd18p1as03cnv7)
+[Link to Mapbox](sitemap/index.html)
 
 ## Cesium Ion Link
 
